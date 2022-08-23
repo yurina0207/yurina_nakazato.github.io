@@ -1,1 +1,1 @@
-# yurina_nakazato.github.io
+# yurinanakazato.github.io
